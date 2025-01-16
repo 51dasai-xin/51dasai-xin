@@ -4,7 +4,7 @@
 
 永久地址（需VP恩、科学上网）     https://51ds.fun    （请复制到浏览器打开）
 
-加入微信扣扣粉丝群       https://51dsw02.com?path=/qun.html     （请复制到浏览器打开）
+加入微信扣扣粉丝群       https://51dsw03.com?path=/qun.html     （请复制到浏览器打开）
 
 Telegram 官方用户群      https://t.me/ttcg1/4     （请复制到浏览器打开）
 
